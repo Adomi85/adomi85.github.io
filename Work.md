@@ -4,7 +4,8 @@
 
 JOB COACH AND IT-TRAINER
 
-- Key responsibilities: Arranging daily activities in IT-workshop, coaching, documenting progress etc. Other responsibilities: IT-management, IT-support and various other tasks.
+- Key responsibilities: Arranging daily activities in IT-workshop, coaching, documenting progress etc. 
+- Other responsibilities: IT-management, IT-support and various other tasks.
 - Essential skills: Customer service-, project and teamworking-, communication- and problem solving skills.
 
 ### TIETOKONE FIX (2010 - 2013)
